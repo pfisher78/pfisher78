@@ -14,6 +14,5 @@ What I care about most is economic research, especially complexity economics.
 
 ## Elsewhere
 
-- Senior Analyst at EUTIC, Edinburgh's student trading and investment club, promoted after a group equity research report and pitch on Norsk Hydro
 - Peer-assisted learning leader for Economics 1 (EconPALs)
 - Outside of this: hiking, cycle touring and tennis
