@@ -16,3 +16,7 @@ What I care about most is economic research, especially complexity economics.
 
 - Peer-assisted learning leader for Economics 1 (EconPALs)
 - Outside of this: hiking, cycle touring and tennis
+
+## Contact
+
+[LinkedIn](https://www.linkedin.com/in/patrick-fisher-a6906337b/)
